@@ -1,0 +1,2 @@
+# ajudaquentinha
+ajudaquentinha
